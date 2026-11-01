@@ -1,4 +1,4 @@
-The purpose of this email is to remind Mozillians attending of the opportunity and accountability of the CPG at events they attend.
+hehffhhThe purpose of this email is to remind Mozillians attending of the opportunity and accountability of the CPG at events they attend.
 ***
 
 [Your Greeting],
